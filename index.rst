@@ -4,7 +4,7 @@
 
 
 
-CLICK HERE >>>>> https://drezgaming.xyz/episode/
+CLICK HERE >>>>> https://knightmods.com/episode
 ================================================
 
 
